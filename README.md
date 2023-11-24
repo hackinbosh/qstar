@@ -10,6 +10,8 @@ Rumours and info about Q-Star:
 
 23/11/2023 
 
+Q-Star creepypasta https://i.redd.it/tbyhcnz6h42c1.png
+
 About that OpenAI “breakthrough” Will OpenAI’s Q* change the world? https://garymarcus.substack.com/p/about-that-openai-breakthrough
 
 
